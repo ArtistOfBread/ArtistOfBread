@@ -2,4 +2,4 @@
 - ✍️ I’m interested in gaming, writing, and drawing.
 - 🌱 I’m currently learning literally everything I don't know how to code or use anything.
 - 💞️ I’m looking to collaborate on projects like indie games and such.
-- 📫 How to reach me 'sammie#3084' on Discord.
+- 📫 How to reach me 'Loaf#3084' on Discord.
